@@ -1,0 +1,2 @@
+# Stevani-
+Matematika Diskrit
